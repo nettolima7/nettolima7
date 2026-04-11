@@ -1,4 +1,4 @@
-# 👋 Hi, I'm Severino Neto
+# 👋 Hi, I'm Neto Lima
 
 🚀 **Future Software Engineer | ADS Student**
 🇧🇷 Brazil
